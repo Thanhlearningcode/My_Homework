@@ -14,4 +14,15 @@ Kết quả
 
 ![image](https://github.com/user-attachments/assets/11e37855-5e2e-40f7-a32c-84d256a2467a)
 
-![image](https://github.com/user-attachments/assets/68557e72-75e4-4b64-8605-bf6981a2c558)
+![image](https://github.com/user-attachments/assets/a516fa13-863c-42c3-8f80-979437857ed5)
+![image](https://github.com/user-attachments/assets/27df83d4-6db7-48ee-bdaf-ee64b0c093f9)
+![image](https://github.com/user-attachments/assets/df9bbfc2-249f-471e-8f6d-e8443264d2b4)
+![image](https://github.com/user-attachments/assets/2cdf3794-6634-454a-be6a-08f209a78655)
+![image](https://github.com/user-attachments/assets/765d9c28-8804-4f41-9f10-840635886bcf)
+![image](https://github.com/user-attachments/assets/75b5736b-a3a3-4fe3-a8a2-92b776036c02)
+
+Ket qua:
+
+![image](https://github.com/user-attachments/assets/b29da1a5-2239-4d1f-b0ea-08c11a4c720f)
+
+
