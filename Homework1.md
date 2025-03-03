@@ -24,3 +24,25 @@
    ![image](https://github.com/user-attachments/assets/dfea5b60-f555-4a77-9bb7-a95dabb44e5e)
 
 🔹 Lưu ý: Hãy đảm bảo các lệnh trên được lưu vào commands.sh và có quyền thực thi:
+
+B 
+
+5.
+![image](https://github.com/user-attachments/assets/d4ea9cd8-1c49-4641-9090-8b86262ff64a)
+
+![image](https://github.com/user-attachments/assets/f5bd9ec8-a5a2-49d9-8a8a-f11409539a90)
+
+
+6. 
+![image](https://github.com/user-attachments/assets/62312667-97f9-4b2b-953a-04028c146691)
+
+![image](https://github.com/user-attachments/assets/6d73d10f-0a0b-4c00-bc89-bb068d60baf2)
+
+
+7 
+
+![image](https://github.com/user-attachments/assets/f829d661-e052-461d-bafb-452afd052fd3)
+
+
+![image](https://github.com/user-attachments/assets/137992bf-feb7-4c05-adfa-433728351311)
+
